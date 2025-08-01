@@ -5,7 +5,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF0000&lines=Bienvenid@+a+mi+repositorio;disfruta+de+Velvette🦋+❤️‍🔥yajuuu🔥)](https://git.io/typing-svg)
 ---
 
-### <img src:"https://www.threads.com/@godoversetv/post/C4HUibUoupb/media"/> Prueba La Bot Aqui
+### <img src="https://imgur.com/a/8nGXNoH"/> Prueba La Bot Aqui
 
 > Si Deseas Probar El Bot Antes De Instalarlo, Click Abajo. 🍟
 
