@@ -6,7 +6,7 @@
 ---
 
 ### <img src="https://i.postimg.cc/tTM3p5Pq/6dde7fd21530c5cf1690c2e9269f449e.png"/>
-<p>Si estas leyendo esto Es por que te amo mucho y Apoyame para hacer mas Bot de Buena Calidad</p>
+### <p>Si estas leyendo esto Es por que te amo mucho y Apoyame para hacer mas Bot de Buena Calidad</p>
 
 > Si Deseas Probar El Bot Antes De Instalarlo, Click Abajo. 🍟
 
